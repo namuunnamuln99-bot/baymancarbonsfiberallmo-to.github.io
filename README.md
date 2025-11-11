@@ -15,3 +15,4 @@ Akoso Carbon Fiber Catalog (All Brands).pdf
   </a>
 </body>
 </html>
+https://akosocarbon.com/collections/for-ducati
